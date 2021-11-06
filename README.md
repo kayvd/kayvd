@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Hi!
+Hi! I'm a 3.5 (ish) year biology student @ UBC :)
