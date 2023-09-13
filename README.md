@@ -14,5 +14,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 -->
-
-Hi! I'm a 3.5 (ish) year biology student @ UBC :)
